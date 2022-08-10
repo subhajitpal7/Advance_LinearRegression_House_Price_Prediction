@@ -62,7 +62,7 @@
 
 
 ## Contact
-Created by [@Soumayad96] - feel free to contact me!
+Created by [@Subhajitpal7] - feel free to contact me!
 
 
 <!-- Optional -->
